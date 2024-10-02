@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @salaaas
 - 👀 I’m interested in .SOCCER.
-- 🌱 I’m currently learning .NOTHING.
+- 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ..
 - 📫 How to reach me ...
 - 😄 Pronouns: ....................................?
